@@ -1,4 +1,4 @@
-### Olá! Me chamo Vinicius Costa mais conhecido como Vancucks  😁
+### Olá! Me chamo Vinicius Costa 😁
 
 
 [![Youtube](https://img.shields.io/badge/YouTube-FF0000?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/@vancucks1649)
